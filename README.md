@@ -19,5 +19,3 @@ Planeja-se o desenvolvimento de uma camada de **Inteligência Artificial** que:
 - Consome e compreende todo o conteúdo deste repositório.
 - Responde dúvidas bíblicas de forma coerente, com base nas anotações e textos aqui registrados.
 - Funciona como um **chatbot cristão**.
-
-> ✨ Um assistente virtual que conhece profundamente este repositório e responde com sabedoria bíblica.
