@@ -3,7 +3,7 @@
 > Versículos do capítulo 1 do Evangelho de Marcos.
 
 ---
-## João Batista prepara o caminho
+## João Baptista prepara o caminho
 
 **1** Princípio do evangelho de Jesus Cristo, o Filho de Deus.  
 
