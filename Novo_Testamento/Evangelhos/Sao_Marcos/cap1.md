@@ -1,9 +1,9 @@
-### 📖 Marcos 1  
+# Marcos 1  
 
-> Versículos do capítulo 1 do livro de Marcos da Bíblia.
+> Versículos do capítulo 1 do Evangelho de Marcos.
 
 ---
-#### 🕊️ João Batista prepara o caminho
+## João Batista prepara o caminho
 
 **1** Princípio do evangelho de Jesus Cristo, o Filho de Deus.  
 
@@ -32,7 +32,7 @@
 **8** Eu os batizo com água, mas ele os batizará com o Espírito Santo.
 
 ---
-#### ✝️ O batismo e a tentação de Jesus
+## O batismo e a tentação de Jesus
 
 **9** Naquela ocasião, Jesus veio de Nazaré da Galileia e foi batizado por João no Jordão.  
 
@@ -44,7 +44,7 @@
 **13** Ali esteve quarenta dias, sendo tentado por Satanás. Estava com os animais selvagens, e os anjos o serviam.
 
 ---
-#### 🧑‍🤝‍🧑 A chamada dos primeiros discípulos
+## A chamada dos primeiros discípulos
 
 **14** Depois que João foi preso, Jesus foi para a Galileia, proclamando as boas-novas de Deus.  
 
@@ -63,7 +63,7 @@
 **20** Logo os chamou, e eles o seguiram, deixando seu pai, Zebedeu, com os empregados no barco.
 
 ---
-#### 💥 Jesus expulsa demônios e cura doentes
+## Jesus expulsa demônios e cura doentes
 
 **21** Eles foram para Cafarnaum e, logo que chegou o sábado, Jesus entrou na sinagoga e começou a ensinar.  
 
@@ -97,7 +97,7 @@
 **34** e Jesus curou muitos que sofriam de várias doenças. Também expulsou muitos demônios; não permitia, porém, que estes falassem, porque sabiam quem ele era.
 
 ---
-#### 🙏 Jesus ora num lugar deserto
+## Jesus ora num lugar deserto
 
 **35** De madrugada, quando ainda estava escuro, Jesus levantou-se, saiu de casa e foi para um lugar deserto, onde ficou orando.  
 
@@ -112,7 +112,7 @@
 **39** Então ele percorreu toda a Galileia, pregando nas sinagogas e expulsando os demônios.
 
 ---
-#### 🤲 A cura de um homem leproso
+## A cura de um homem leproso
 
 **40** Um leproso aproximou-se dele e suplicou-lhe de joelhos:  
 > "Se quiseres, podes purificar-me!"  
