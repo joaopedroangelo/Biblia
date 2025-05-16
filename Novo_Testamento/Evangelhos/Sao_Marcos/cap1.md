@@ -26,8 +26,7 @@
 
 **6** João vestia roupas feitas de pelos de camelo, usava um cinto de couro e comia gafanhotos e mel silvestre.  
 
-**7** E esta era a sua mensagem:  
-> "Depois de mim vem alguém mais poderoso do que eu, tanto que não sou digno nem de curvar-me e desamarrar as correias das suas sandálias."  
+**7** E esta era a sua mensagem: *"Depois de mim vem alguém mais poderoso do que eu, tanto que não sou digno nem de curvar-me e desamarrar as correias das suas sandálias."*  
 
 **8** Eu os batizo com água, mas ele os batizará com o Espírito Santo.
 
@@ -38,9 +37,10 @@
 
 **10** Assim que saiu da água, Jesus viu o céu se abrindo e o Espírito descendo como pomba sobre ele.  
 
-**11** Então veio dos céus uma voz:  
-> "Tu és o meu Filho amado; de ti me agrado".  
+**11** Então veio dos céus uma voz: *"Tu és o meu Filho amado; de ti me agrado".*  
+
 **12** Logo após, o Espírito o impeliu para o deserto.  
+
 **13** Ali esteve quarenta dias, sendo tentado por Satanás. Estava com os animais selvagens, e os anjos o serviam.
 
 ---
@@ -48,13 +48,11 @@
 
 **14** Depois que João foi preso, Jesus foi para a Galileia, proclamando as boas-novas de Deus.  
 
-**15**  
-> "O tempo é chegado", dizia ele. "O Reino de Deus está próximo. Arrependam-se e creiam nas boas-novas!"  
+**15** *"O tempo é chegado"*, dizia ele. *"O Reino de Deus está próximo. Arrependam-se e creiam nas boas-novas!"*  
 
 **16** Andando à beira do mar da Galileia, Jesus viu Simão e seu irmão André lançando redes ao mar, pois eram pescadores.  
 
-**17**  
-> E disse Jesus: "Sigam-me, e eu os farei pescadores de homens".  
+**17** E disse Jesus: *"Sigam-me, e eu os farei pescadores de homens".*  
 
 **18** No mesmo instante eles deixaram as suas redes e o seguiram.  
 
@@ -71,16 +69,13 @@
 
 **23** Justo naquele momento, na sinagoga, um homem possesso de um espírito imundo gritou:  
 
-**24**  
-> "O que queres conosco, Jesus de Nazaré? Vieste para nos destruir? Sei quem tu és: o Santo de Deus!"  
+**24** *"O que queres conosco, Jesus de Nazaré? Vieste para nos destruir? Sei quem tu és: o Santo de Deus!"*  
 
-**25**  
-> "Cale-se e saia dele!", repreendeu-o Jesus.  
+**25** *"Cale-se e saia dele!"*, repreendeu-o Jesus.  
 
 **26** O espírito imundo sacudiu o homem violentamente e saiu dele gritando.  
 
-**27** Todos ficaram tão admirados que perguntavam uns aos outros:  
-> "O que é isto? Um novo ensino - e com autoridade! Até aos espíritos imundos ele dá ordens, e eles lhe obedecem!"  
+**27** Todos ficaram tão admirados que perguntavam uns aos outros: *"O que é isto? Um novo ensino - e com autoridade! Até aos espíritos imundos ele dá ordens, e eles lhe obedecem!"*  
 
 **28** As notícias a seu respeito se espalharam rapidamente por toda a região da Galileia.  
 
@@ -103,28 +98,23 @@
 
 **36** Simão e seus companheiros foram procurá-lo  
 
-**37** e, ao encontrá-lo, disseram:  
-> "Todos estão te procurando!"  
+**37** e, ao encontrá-lo, disseram: *"Todos estão te procurando!"*  
 
-**38** Jesus respondeu:  
-> "Vamos para outro lugar, para os povoados vizinhos, para que também lá eu pregue. Foi para isso que eu vim".  
+**38** Jesus respondeu: *"Vamos para outro lugar, para os povoados vizinhos, para que também lá eu pregue. Foi para isso que eu vim".*  
 
 **39** Então ele percorreu toda a Galileia, pregando nas sinagogas e expulsando os demônios.
 
 ---
 ## A cura de um homem leproso
 
-**40** Um leproso aproximou-se dele e suplicou-lhe de joelhos:  
-> "Se quiseres, podes purificar-me!"  
+**40** Um leproso aproximou-se dele e suplicou-lhe de joelhos: *"Se quiseres, podes purificar-me!"*  
 
-**41** Cheio de compaixão, Jesus estendeu a mão, tocou nele e disse:  
-> "Quero. Seja purificado!"  
+**41** Cheio de compaixão, Jesus estendeu a mão, tocou nele e disse: *"Quero. Seja purificado!"*  
 
 **42** Imediatamente a lepra o deixou, e ele foi purificado.  
 
 **43** Em seguida Jesus o despediu, com uma severa advertência:  
 
-**44**  
-> "Olhe, não conte isso a ninguém. Mas vá mostrar-se ao sacerdote e ofereça pela sua purificação os sacrifícios que Moisés ordenou, para que sirva de testemunho".  
+**44** *"Olhe, não conte isso a ninguém. Mas vá mostrar-se ao sacerdote e ofereça pela sua purificação os sacrifícios que Moisés ordenou, para que sirva de testemunho".*  
 
 **45** Ele, porém, saiu e começou a tornar público o fato, espalhando a notícia. Por isso Jesus não podia mais entrar publicamente em nenhuma cidade, mas ficava fora, em lugares solitários. Todavia, assim mesmo vinha a ele gente de todas as partes.
