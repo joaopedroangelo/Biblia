@@ -1,4 +1,4 @@
-# São Marcos 3
+# São Marcos, cap. 3
 
 > Versículos do capítulo 3 do Evangelho de São Marcos.
 
