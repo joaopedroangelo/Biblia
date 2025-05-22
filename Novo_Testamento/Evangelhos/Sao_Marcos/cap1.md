@@ -1,4 +1,4 @@
-# São Marcos 1  
+# São Marcos, cap. 1  
 
 > Versículos do capítulo 1 do Evangelho de São Marcos.
 
