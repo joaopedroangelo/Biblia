@@ -1,4 +1,4 @@
-# São Marcos 2
+# São Marcos, cap. 2
 
 > Versículos do capítulo 2 do Evangelho de São Marcos.
 
