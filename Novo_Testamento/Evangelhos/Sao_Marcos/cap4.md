@@ -1,4 +1,4 @@
-# São Marcos, Capítulo 4
+# São Marcos, cap. 4
 
 > Versículos do capítulo 4 do Evangelho de São Marcos
 
