@@ -1,6 +1,6 @@
-# Marcos 2
+# São Marcos 2
 
-> Versículos do capítulo 2 do Evangelho de Marcos.
+> Versículos do capítulo 2 do Evangelho de São Marcos.
 
 ---
 ## Jesus cura um paralítico
