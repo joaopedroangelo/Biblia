@@ -1,6 +1,6 @@
-# Marcos 1  
+# São Marcos 1  
 
-> Versículos do capítulo 1 do Evangelho de Marcos.
+> Versículos do capítulo 1 do Evangelho de São Marcos.
 
 ---
 ## João Baptista prepara o caminho
