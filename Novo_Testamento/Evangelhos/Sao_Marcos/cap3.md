@@ -1,6 +1,6 @@
-# Marcos 3
+# São Marcos 3
 
-> Versículos do capítulo 3 do Evangelho de Marcos.
+> Versículos do capítulo 3 do Evangelho de São Marcos.
 
 ---
 ## Jesus cura no sábado
