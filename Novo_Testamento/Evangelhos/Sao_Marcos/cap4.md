@@ -5,102 +5,109 @@
 ---
 ## Parábola do semeador
 
-**1.** Jesus pôs-se novamente a ensinar, à beira do mar, e aglomerou-se junto dele tão grande multidão, que ele teve de entrar numa barca, no mar, e toda a multidão ficou em terra na praia.  
+**1.** Novamente Jesus começou a ensinar à beira-mar. Reuniu-se ao seu redor uma multidão tão grande que ele teve que entrar num barco e assentar-se nele. O barco estava no mar, enquanto todo o povo ficava na beira da praia.
 
-**2.** E ensinava-lhes muitas coisas em parábolas. Dizia-lhes na sua doutrina:  
+**2.** Ele lhes ensinava muitas coisas por parábolas, dizendo em seu ensino:
 
-**3.** “Ouvi: Saiu o semeador a semear.  
+**3.** *"Ouçam! O semeador saiu a semear.*
 
-**4.** Enquanto lançava a semente, uma parte caiu à beira do caminho, e vieram as aves e a comeram.  
+**4.** *Enquanto lançava a semente, parte dela caiu à beira do caminho, e as aves vieram e a comeram.*
 
-**5.** Outra parte caiu no pedregulho, onde não havia muita terra; o grão germinou logo, porque a terra não era profunda;  
+**5.** *Parte dela caiu em terreno pedregoso, onde não havia muita terra; e logo brotou, porque a terra não era profunda.*
 
-**6.** mas, assim que o sol despontou, queimou-se e, como não tivesse raiz, secou.  
+**6.** *Mas, quando saiu o sol, as plantas se queimaram e secaram, porque não tinham raiz.*
 
-**7.** Outra parte caiu entre os espinhos; estes cresceram, sufocaram-na e o grão não deu fruto.  
+**7.** *Outra parte caiu entre espinhos, que cresceram e sufocaram as plantas, de forma que ela não deu fruto.*
 
-**8.** Outra caiu em terra boa e deu fruto, cresceu e desenvolveu-se; um grão rendeu trinta, outro sessenta e outro cem”.  
+**8.** *Outra ainda caiu em boa terra, germinou, cresceu e deu boa colheita, a trinta, sessenta e até cem por um".*
 
-**9.** E dizia: “Quem tem ouvidos para ouvir, ouça!”
+**9.** **E acrescentou: "Aquele que tem ouvidos para ouvir, ouça!"**
 
 ---
 ## Explicação da parábola
 
-**10.** Quando se acharam a sós, os que o cercavam e os Doze indagaram dele o sentido da parábola.  
+**10.** Quando ele ficou sozinho, os Doze e os outros que estavam ao seu redor lhe fizeram perguntas acerca das parábolas.
 
-**11.** Ele disse-lhes: “A vós é revelado o mistério do Reino de Deus, mas aos que são de fora tudo se lhes propõe em parábolas.  
+**11.** Ele lhes disse: *"A vocês foi dado o mistério do Reino de Deus, mas aos que estão fora tudo é dito por parábolas,*
 
-**12.** Desse modo, eles olham sem ver, escutam sem compreender, sem que se convertam e lhes seja perdoado”.  
+**12.** *a fim de que,
+' ainda que vejam,
+não percebam;
+ainda que ouçam,
+não entendam;
+de outro modo,
+poderiam converter-se
+e ser perdoados!' "*
 
-**13.** E acrescentou: “Não entendeis essa parábola? Como entendereis então todas as outras?  
+**13.** Então Jesus lhes perguntou: *"Vocês não entendem esta parábola? Como, então, compreenderão todas as outras?*
 
-**14.** O semeador semeia a palavra.  
+**14.** *O semeador semeia a palavra.*
 
-**15.** Alguns se encontram à beira do caminho, onde ela é semeada; apenas a ouvem, vem Satanás tirar a palavra neles semeada.  
+**15.** *Algumas pessoas são como a semente à beira do caminho, onde a palavra é semeada. Logo que a ouvem, Satanás vem e retira a palavra nelas semeada.*
 
-**16.** Outros recebem a semente em lugares pedregosos; quando a ouvem, recebem-na com alegria;  
+**16.** *Outras, como a semente lançada em terreno pedregoso, ouvem a palavra e logo a recebem com alegria.*
 
-**17.** mas não têm raiz em si, são inconstantes, e assim que se levanta uma tribulação ou uma perseguição por causa da palavra, eles tropeçam.  
+**17.** *Todavia, visto que não têm raiz em si mesmas, permanecem por pouco tempo. Quando surge alguma tribulação ou perseguição por causa da palavra, logo a abandonam.*
 
-**18.** Outros ainda recebem a semente entre os espinhos; ouvem a palavra,  
+**18.** *Outras ainda, como a semente lançada entre espinhos, ouvem a palavra;*
 
-**19.** mas as preocupações mundanas, a ilusão das riquezas, as múltiplas cobiças sufocam-na e a tornam infrutífera.  
+**19.** *mas, quando chegam as preocupações desta vida, o engano das riquezas e os anseios por outras coisas sufocam a palavra, tornando-a infrutífera.*
 
-**20.** Aqueles que recebem a semente em terra boa escutam a palavra, acolhem-na e dão fruto, trinta, sessenta e cem por um”.
-
----
-## A candeia e a medida
-
-**21.** Dizia-lhes ainda: “Traz-se porventura a candeia para ser colocada debaixo do alqueire ou debaixo da cama? Não é para ser posta no candeeiro?  
-
-**22.** Porque nada há oculto que não deva ser descoberto, nada secreto que não deva ser publicado.  
-
-**23.** Se alguém tem ouvidos para ouvir, que ouça”.  
-
-**24.** Ele prosseguiu: “Atendei ao que ouvis: com a medida com que medirdes, vos medirão a vós, e ainda se vos acrescentará.  
-
-**25.** Pois, ao que tem, se lhe dará; e ao que não tem, se lhe tirará até o que tem”.
+**20.** *Outras pessoas são como a semente lançada em boa terra: ouvem a palavra, aceitam-na e dão uma colheita de trinta, sessenta e até cem por um".*
 
 ---
-## A parábola da semente que cresce
+## A luz do candeeiro
 
-**26.** Dizia também: “O Reino de Deus é como um homem que lança a semente à terra.  
+**21.** Ele lhes disse: *"Quem traz uma candeia para ser colocada debaixo de uma vasilha ou de uma cama? Acaso não a coloca num lugar apropriado?*
 
-**27.** Dorme, levanta-se, de noite e de dia, e a semente brota e cresce, sem ele o perceber.  
+**22.** *Porque não há nada oculto, senão para ser revelado, e nada escondido, senão para ser trazido à luz.*
 
-**28.** Pois a terra por si mesma produz, primeiro a planta, depois a espiga e, por último, o grão abundante na espiga.  
+**23.** **Se alguém tem ouvidos para ouvir, ouça!**
 
-**29.** Quando o fruto amadurece, ele mete-lhe a foice, porque é chegada a colheita”.
+**24.** **"Considerem atentamente o que vocês estão ouvindo", continuou ele. "Com a medida com que medirem, vocês serão medidos; e ainda mais acrescentarão para vocês.**
+
+**25.** **A quem tiver, mais lhe será dado; de quem não tiver, até o que tem lhe será tirado".**
 
 ---
-## A parábola do grão de mostarda
+## A história da semente
 
-**30.** Dizia ele: “A quem compararemos o Reino de Deus? Ou com que parábola o representaremos?  
+**26.** Ele prosseguiu dizendo: *"O Reino de Deus é semelhante a um homem que lança a semente sobre a terra.*
 
-**31.** É como o grão de mostarda que, quando é semeado, é a menor de todas as sementes.  
+**27.** *Noite e dia, estando ele dormindo ou acordado, a semente germina e cresce, embora ele não saiba como.*
 
-**32.** Mas, depois de semeado, cresce, torna-se maior que todas as hortaliças e estende de tal modo os seus ramos, que as aves do céu podem abrigar-se à sua sombra”.
+**28.** *A terra por si própria produz o grão: primeiro o talo, depois a espiga e, então, o grão cheio na espiga.*
+
+**29.** *Logo que o grão fica maduro, o homem lhe passa a foice, porque chegou a colheita".*
+
+---
+## A semente de mostarda
+
+**30.** Novamente ele disse: *"Com que compararemos o Reino de Deus? Que parábola usaremos para descrevê-lo?*
+
+**31.** *É como um grão de mostarda, que é a menor semente que se planta na terra.*
+
+**32.** *No entanto, uma vez plantado, cresce e se torna uma das maiores plantas, com ramos tão grandes que as aves do céu podem abrigar-se à sua sombra".*
 
 ---
 ## Uso das parábolas por Jesus
 
-**33.** Era por meio de numerosas parábolas desse gênero que ele lhes anunciava a palavra, conforme eram capazes de compreender.  
+**33.** Com muitas parábolas semelhantes Jesus lhes anunciava a palavra, tanto quanto podiam receber.
 
-**34.** E não lhes falava, a não ser em parábolas; a sós, porém, explicava tudo a seus discípulos.
+**34.** Não lhes dizia nada sem usar alguma parábola. Quando, porém, estava a sós com os seus discípulos, explicava-lhes tudo.
 
 ---
 ## Jesus acalma a tempestade
 
-**35.** À tarde daquele dia, disse-lhes: “Passemos para o outro lado”.  
+**35.** Naquele dia, ao anoitecer, disse ele aos seus discípulos: *"Vamos para o outro lado".*
 
-**36.** Deixando o povo, levaram-no consigo na barca, assim como ele estava. Outras embarcações o escoltavam.  
+**36.** Deixando a multidão, eles o levaram no barco, assim como estava. Outros barcos também o acompanhavam.
 
-**37.** Nisso, surgiu uma grande tormenta e lançava as ondas dentro da barca, de modo que ela já se enchia de água.  
+**37.** Levantou-se um forte vendaval, e as ondas se lançavam sobre o barco, de forma que este ia se enchendo de água.
 
-**38.** Jesus achava-se na popa, dormindo sobre um travesseiro. Eles acordaram-no e disseram-lhe: “Mestre, não te importa que pereçamos?”.  
+**38.** Jesus estava na popa, dormindo com a cabeça sobre um travesseiro. Os discípulos o acordaram e clamaram: *"Mestre, não te importas que morramos?"*
 
-**39.** E ele, despertando, repreendeu o vento e disse ao mar: “Silêncio! Cala-te!”. E cessou o vento e seguiu-se grande bonança.  
+**39.** Ele se levantou, repreendeu o vento e disse ao mar: *"Aquiete-se! Acalme-se!"* O vento se aquietou, e fez-se completa bonança.
 
-**40.** Ele disse-lhes: “Como sois medrosos! Ainda não tendes fé?”.  
+**40.** Então perguntou aos seus discípulos: *"Por que vocês estão com tanto medo? Ainda não têm fé?"*
 
-**41.** Eles ficaram penetrados de grande temor e cochichavam entre si: “Quem é este, a quem até o vento e o mar obedecem?”
+**41.** Eles estavam apavorados e perguntavam uns aos outros: *"Quem é este que até o vento e o mar lhe obedecem?"*
