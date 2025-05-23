@@ -60,9 +60,9 @@
 
 **23** Então Jesus os chamou e lhes falou por parábolas: *"Como pode Satanás expulsar Satanás?*  
 
-**24** *Se um reino estiver dividido contra si mesmo, não poderá subsistir.*  
+**24** **Se um reino estiver dividido contra si mesmo, não poderá subsistir.**  
 
-**25** *Se uma casa estiver dividida contra si mesma, também não poderá subsistir.*  
+**25** **Se uma casa estiver dividida contra si mesma, também não poderá subsistir.**  
 
 **26** *E, se Satanás se opuser a si mesmo e estiver dividido, não poderá subsistir; chegou o seu fim.*  
 
@@ -70,7 +70,7 @@
 
 **28** *Eu asseguro que todos os pecados e blasfêmias dos homens lhes serão perdoados,*  
 
-**29** *mas quem blasfemar contra o Espírito Santo nunca terá perdão: é culpado de pecado eterno".*  
+**29** **mas quem blasfemar contra o Espírito Santo nunca terá perdão: é culpado de pecado eterno".**  
 
 **30** Jesus falou isso porque eles estavam dizendo: *"Ele está com um espírito imundo".*  
 
@@ -85,4 +85,4 @@
 
 **34** Então olhou para os que estavam assentados ao seu redor e disse: *"Aqui estão minha mãe e meus irmãos!*  
 
-**35** *Quem faz a vontade de Deus, este é meu irmão, minha irmã e minha mãe".*  
+**35** **Quem faz a vontade de Deus, este é meu irmão, minha irmã e minha mãe".**
